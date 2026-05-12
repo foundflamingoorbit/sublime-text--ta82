@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Sublime Text for PC | Sublime Text for Windows snippet with vip Sublime Text for PC | Sublime Text for Windows Snippet | search-and-replace + keyboard-shortcuts.
 
 
 
